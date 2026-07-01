@@ -1,3 +1,12 @@
+Anastasiia Massyk — Portfolio
+
+Digital designer | Developer | Content creator
+
+📄 Resume
+🎨 Design projects
+💻 Development projects
+🏆 Certificates
+
 Роботи у Figma:
 
 https://www.figma.com/design/Cj77xlgaQTh7niotUNjnXH/Ui-Max---Create-a-complete-website-faster--Community-?node-id=216-55&p=f&t=pOmMGAMmPgd33BmP-0
