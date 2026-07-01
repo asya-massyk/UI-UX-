@@ -1,6 +1,6 @@
 Anastasiia Massyk — Portfolio
 
-Digital designer | Developer | Content creator
+Digital designer | UI/UX designer | Content creator
 
 📄 Resume
 🎨 Design projects
