@@ -1,4 +1,4 @@
-Anastasiia Massyk — Portfolio
+Massyk Anastasia — Portfolio
 
 Digital designer | UI/UX designer | Content creator
 
